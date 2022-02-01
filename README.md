@@ -5,7 +5,7 @@
 
 🐦 Twitter: https://twitter.com/NasrinAttar
 
-Hi there! My name is Nasrin Attar, I have PhD in water resources and specialized in hydrology, hydroinformatics and water related problems. I’m a lecturer at department of civil engineering at Urmia university of technology and also guest lecturer at water department in Urmia University of Iran. I am the founder of RladiesUrmia community (first Rladies branch in Iran).Please find more about me in my CV and my professional accounts such as LinkedIn, research gate and YouTube.
+Hi there! My name is Nasrin Attar, I have PhD in water resources and specialized in hydrology, hydroinformatics and water related problems. I’m a lecturer at department of civil engineering at Urmia university of technology and also guest lecturer at water department in Urmia University of Iran. I am the founder of RladiesUrmia community (first Rladies branch in Iran). Please find more about me in my CV and my professional accounts such as LinkedIn, research gate and YouTube.
 
 📝 link to all profiles: https://linktr.ee/nasrinattar
 
