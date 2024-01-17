@@ -14,7 +14,7 @@ Hi there! My name is Nasrin Attar, I have PhD in water resources and specialize 
 - 2023 - present: Researcher (post-doc) at the Department of Statistics (University of Padova, Italy)
 - 2019 - 2022: University Lecturer (Urmia University & Urmia University of Technology, Iran)
 - 2020 - 2021: Postdoc (Tabriz University, Iran)
-- 2018 : Sabbatical (Uni of Adelaide, Australia)
+- 2018 : Sabbatical (University of Adelaide, Australia)
 
 ## Education
 - PhD (2016-2019): Water Resources Engineering (Hydroinformatics)
