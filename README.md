@@ -7,6 +7,8 @@
 
 Hi there! My name is Nasrin Attar, I have PhD in water resources and specialize in hydrology, hydroinformatics and water-related problems. I am the founder of RladiesUrmia community (the first Rladies branch in Iran). Please find more about me in my CV and my professional accounts such as LinkedIn, Research Gate and YouTube.
 
+Personal Website: https://nasrinattar26.github.io/NasrinAttar/
+
 📝 link to all profiles: https://linktr.ee/nasrinattar
 
 
